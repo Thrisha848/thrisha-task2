@@ -1,1 +1,1 @@
-# thrisha-task2
+https://www.linkedin.com/posts/thrisha-bandi-19b9b6370_webdevelopment-javascript-learningbybuilding-activity-7344235649836675072-YnFm?utm_source=share&utm_medium=member_desktop&rcm=ACoAAFv8EIcBWBxQYko8POoGQIjQE7MZUqecD-4
